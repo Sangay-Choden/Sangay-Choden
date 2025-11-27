@@ -13,6 +13,7 @@ I’m committed to continuous learning, creative problem-solving, and taking own
 Bachelor’s Degree in Computer Science – Full-Stack Development
 
 
-**chodrensangay07@gmail.com*
-**Thimphu, Bhutan*
+**chodrensangay07@gmail.com**
+
+**Thimphu, Bhutan**
 
